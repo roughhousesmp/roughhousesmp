@@ -1,6 +1,5 @@
 ★，call me sick or crazy ⸝⸝ call me what you like ! ₊
 
-![](https://i.postimg.cc/853FzD3P/Untitled10-20250207070743.png)
 <img src="https://i.postimg.cc/853FzD3P/Untitled10-20250207070743.png" data-canonical-src="(https://i.postimg.cc/853FzD3P/Untitled10-20250207070743.png)" width="400" height="400" />
 
 
