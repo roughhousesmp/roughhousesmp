@@ -10,6 +10,9 @@
 ◡  nonhuman , fictkin + clink ꜝꜝ
 
 ![](https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png)
+<img src="https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png" data-canonical-src="(https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png)" width="400" height="400" />
+
+
 
 ★，for a fog so sick and hazy ⸝⸝ calls for a holy light  ! ₊
 <!--
