@@ -10,7 +10,7 @@
 ◡  nonhuman , fictkin + clink ꜝꜝ
 
 ![](https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png)
-<img src="https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png" data-canonical-src="(https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png)" width="600" height="600" />
+<img src="https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png" data-canonical-src="(https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png)" width="400" height="600" />
 
 
 
