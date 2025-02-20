@@ -1,7 +1,8 @@
 ★，call me sick or crazy ⸝⸝ call me what you like ! ₊
 
 ![](https://i.postimg.cc/853FzD3P/Untitled10-20250207070743.png)
-<img src="(https://i.postimg.cc/853FzD3P/Untitled10-20250207070743.png" width="5">
+<img src="https://camo.githubusercontent.com/..." data-canonical-src="(https://i.postimg.cc/853FzD3P/Untitled10-20250207070743.png)" width="200" height="400" />
+
 
 
 𓏴⠀  autism bpd　𓂃⠀
