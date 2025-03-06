@@ -9,7 +9,7 @@
 
 ◡  nonhuman , fictkin + clink ꜝꜝ
 
-<img src="https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png" data-canonical-src="(https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png)" width="600" height="200" />
+<img src="https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png" data-canonical-src="(https://i.postimg.cc/zGMjbLQT/Untitled10-20250207071118.png)" width="600" height="100" />
 
 
 
