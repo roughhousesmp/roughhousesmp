@@ -1,6 +1,6 @@
 ★，call me sick or crazy ⸝⸝ call me what you like ! ₊
 
-![](https://i.postimg.cc/bJTgpLVg/IMG-0122.gif)
+[![IMG-0122.gif](https://i.postimg.cc/bJTgpLVg/IMG-0122.gif)](https://postimg.cc/phmzBQH5)
 𓏴⠀  autism bpd　𓂃⠀
 ♡ < bibi mimi cera eclipse /p 3
 
